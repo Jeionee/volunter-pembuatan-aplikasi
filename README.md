@@ -6,4 +6,3 @@ Silakan gunakan format berikut:<br>
 **\* Nama, [LinkedIn/GitHub/Website](Alamat URL).**  
 
 Berikut adalah daftar Volunter yang diterima:
-* Adeline Angelique, [Linkedin](https://www.linkedin.com/in/adelineangelique/).
